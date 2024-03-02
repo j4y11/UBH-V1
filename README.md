@@ -2,7 +2,7 @@
 
 # About Us
 
-The Unblocked Hub is one of the best modern unblocked game sites. Check it out <a href="https://theunblockedhub.com">here</a>.  
+The Unblocked Hub is one of the best modern unblocked game sites. Check it out <a href="https://freedom-jayver.koyeb.app/">here</a>.  
 
 # Deploying
 
